@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Adamexx8
+- 👀 I’m interested in crypto and programing
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me? message me on discord: Adamexx8#7707
